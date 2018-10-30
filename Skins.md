@@ -1,0 +1,19 @@
+# Krispus skins compilation
+
+ Click on the skin name to download.
+# Some of the skins Krispus uses might be private or unfinished and may not be listed
+
+ # [- # SpaceAmber (BubbleMan)](https://puu.sh/BThgf.osk)
+![](https://i.imgur.com/F1umaGw.png)
+
+ # [#B.Q.S (Orange)](https://puu.sh/BThc4.osk)
+![](https://i.imgur.com/rdqB4PX.jpg)
+
+ # [Badeu](https://puu.sh/BTh9Y.osk)
+![](https://i.imgur.com/ajWzeUR.png)
+
+ # [azer -ite](https://puu.sh/BTh0C.osk)
+![](https://i.imgur.com/wyTfqJS.png)
+
+ # [- dumii aesthetic -](https://www.dropbox.com/s/s1vvmc342myw4q7/-dummy%20aesthetic%20-.osk?dl=0)
+![](https://osu.ppy.sh/ss/12004410)

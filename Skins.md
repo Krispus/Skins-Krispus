@@ -3,6 +3,9 @@
  Click on the skin name to download.
 # Some of the skins Krispus uses might be private or unfinished and may not be listed
 
+# [BubbleSkin18-01-14](https://puu.sh/C0U2L.osk)
+![](https://i.imgur.com/tf7SUPj.png)
+
  # [- # SpaceAmber (BubbleMan)](https://puu.sh/BThgf.osk)
 ![](https://i.imgur.com/F1umaGw.png)
 

@@ -3,20 +3,20 @@
  Click on the skin name to download.
 # Some of the skins Krispus uses might be private or unfinished and may not be listed
 
-# [BubbleSkin18-01-14](https://puu.sh/C0U2L.osk)
-![](https://i.imgur.com/tf7SUPj.png)
+# [owoTuna {1.0} 『Mathi』](https://drive.google.com/open?id=1ijZ1F7c6sXjh1Ykbew-VP6nz7ArMA_EC)
+![](https://i.imgur.com/Q264MIy.png)
 
- # [- # SpaceAmber (BubbleMan)](https://puu.sh/BThgf.osk)
-![](https://i.imgur.com/F1umaGw.png)
+ # [owoTuna {1.4} 『idke』](https://drive.google.com/open?id=1jN6xVisCU9k3XIPuQk7xc7iosjwH1NSI)
+![](https://i.imgur.com/BTeVqJj.png)
 
- # [#B.Q.S (Orange)](https://puu.sh/BThc4.osk)
-![](https://i.imgur.com/rdqB4PX.jpg)
+ # [owoTuna {1.41} 『Selyu+Shige』](https://drive.google.com/open?id=1oeGgSk_tyJ-P1nL07kHfn2eGbKd0BETQ)
+![](https://i.imgur.com/fgKiH0r.png)
 
- # [Badeu](https://puu.sh/BTh9Y.osk)
-![](https://i.imgur.com/ajWzeUR.png)
+ # [!Sad Cookie](https://drive.google.com/open?id=14mzl7sqTS9nRKSvf79_btOkPeZcFKF_Z)
+![](https://i.imgur.com/PbRcqNd.png)
 
- # [azer -ite](https://puu.sh/BTh0C.osk)
-![](https://i.imgur.com/wyTfqJS.png)
+ # [#azer8dawn](https://drive.google.com/open?id=1JWzkO1c3y947IfmfO7iUPWxvTo1Whb6G)
+![](https://i.imgur.com/RJwU2Kv.png)
 
- # [- dumii aesthetic -](https://www.dropbox.com/s/s1vvmc342myw4q7/-dummy%20aesthetic%20-.osk?dl=0)
-![](https://osu.ppy.sh/ss/12004410)
+ # [Rafis HDDT (vaxei ver.)](https://drive.google.com/open?id=1o4nxWUm9bl40bARjyW0fBG5A34RaYm5M)
+![](https://i.imgur.com/zv19VsZ.png)

@@ -1,9 +1,11 @@
 # Krispus skins compilation
 
  Click on the skin name to download.
-# Some of the skins Krispus uses might be private or unfinished and may not be listed
+ Нажмите на название скина, для скачивания
+ 
+# Некоторые скины могут быть не загружены, пишите мне в дискорд и я обновлю список @krispusowo
 
- # [XooMoon - MonkoEdit]([https://drive.google.com/open?id=14mzl7sqTS9nRKSvf79_btOkPeZcFKF_Z](https://drive.google.com/file/d/1fbdeTDq3YKC9YDqG3N1nJH7HZPZ4Oj7J/view?usp=sharing))
+ # [XooMoon - MonkoEdit](https://drive.google.com/file/d/1fbdeTDq3YKC9YDqG3N1nJH7HZPZ4Oj7J/view?usp=sharing)
 ![](https://i.imgur.com/A25kkQv.jpg)
 
  # [!Sad Cookie](https://drive.google.com/open?id=14mzl7sqTS9nRKSvf79_btOkPeZcFKF_Z)

@@ -6,7 +6,7 @@
 # Некоторые скины могут быть не загружены, пишите мне в дискорд и я обновлю список @krispusowo
 
  # [tekkito2 [ryan_blue]](https://drive.google.com/file/d/1SXRROWf3T4-D_KBXyqA-ywiznHH4mW5w/view?usp=sharing)
- ![]([https://imgur.com/BfqrmsC](https://i.imgur.com/BfqrmsC.png))
+ ![](https://i.imgur.com/BfqrmsC.png)
 
  # [XooMoon - MonkoEdit](https://drive.google.com/file/d/1fbdeTDq3YKC9YDqG3N1nJH7HZPZ4Oj7J/view?usp=sharing)
 ![](https://i.imgur.com/A25kkQv.jpg)
